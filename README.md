@@ -1,4 +1,4 @@
-# unbound👋 Hi, I’m Syamsree
+ Hi, I’m Syamsree
 
 🏗️ Civil Engineering Student | Aspiring Designer | Engineering Enthusiast
 
